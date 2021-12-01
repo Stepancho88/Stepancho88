@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Stepan
+- 👀 IT-Recruiter 
+- 🌱 I’m currently learning your profiles every day
+- 💞️ I’m looking junior middle specialists
+- 📫 Add me
