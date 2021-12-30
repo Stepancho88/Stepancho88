@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Stepan
-- 👀 IT-Recruiter 
+- 👀 Recruiter 
 - 🌱 I’m currently learning your profiles every day
-- 💞️ I’m looking junior middle specialists
 - 📫 Add me https://www.linkedin.com/in/stepan-volkov-55a30821a/
